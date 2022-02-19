@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Motzzz
 - 🌱 I’m currently teaching kids how to code
-- 📫 How to reach me insta: @kidteachkidscode
+- 📫 How to reach me insta: @kidteachkids
